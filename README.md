@@ -1,0 +1,1 @@
+# okurmen_js_hw_19_azem_biizak_kyzy
